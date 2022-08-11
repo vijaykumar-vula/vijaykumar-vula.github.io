@@ -1,5 +1,5 @@
 
-__`Vula VijayKumar's eResume`___
+__`Vula VijayKumar's eResume`__
 
 **`Email:`** vulavijaykumar@hotmail.com
 
